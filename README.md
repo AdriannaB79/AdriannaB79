@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AdriannaB79
-- 👀 I’m adducted to traveling, so I am looking for remote job. 
+- 👀 I’m addicted to traveling, so I am looking for remote job. 
 - 🌱 I’m currently practicing my skills as web & app developer
 - 💞️ I’m looking to collaborate on companies and freelancers, who work as developers. 
 - 📫 How to reach me? Try on WhatsApp +4917636197441
